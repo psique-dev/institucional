@@ -49,9 +49,8 @@ A Psique Brasil nasceu de uma maratona de empreendedorismo na **UFRGS** e amadur
 - **Tecnopuc Garage**
 - **MVP Caldeira**
 - **Be220**
-- **Sebrae**
 
-Em 2025, a plataforma foi apresentada ao mercado no **South Summit Brazil**.
+Em 2025 e 2026, a Psique marcou presença no **South Summit Brazil**.
 
 ---
 
